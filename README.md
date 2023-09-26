@@ -1,3 +1,3 @@
 - I have 3 older brothers
 - I have lived in 3 different provinces growing up
-- My favourite sports are MMA and hockeu
+- My favourite sports are MMA and hockey
